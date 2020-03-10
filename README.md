@@ -1,2 +1,0 @@
-# TAWASI--
-TAWASI-تواصي
